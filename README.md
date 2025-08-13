@@ -8,4 +8,4 @@ Outside of coding and my businesses, you’ll find me watching anime, hitting th
 Fun Facts:
 👉 I'm matcha obsessed.
 👉 I love plants.
-👉 Demon Slayer, Attack on Titan and Death in Paradise are my favorite animes.🤙
+👉 Demon Slayer, Attack on Titan and Death in Paradise are my favorite animes.
