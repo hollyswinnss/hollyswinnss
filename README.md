@@ -3,7 +3,7 @@ I’m Holly, a software engineer, co-founder of <a href="https://raccoonweb.co.u
 
 I love building applications from lines of code.
 
-Outside of coding and my businesses, you’ll find me watching anime, hitting the gym, or playing wow. I also enjoy writing blog posts and sharing lots of different content on social media like self improvement, tech and random rambles.
+Outside of coding and my businesses, you’ll find me watching anime, hitting the gym, or streaming games. I also enjoy writing blog posts and sharing lots of different content on social media like self improvement, tech and random rambles.
 
 Fun Facts:
 👉 I'm matcha obsessed.
