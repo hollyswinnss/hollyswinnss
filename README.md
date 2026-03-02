@@ -1,4 +1,4 @@
-Hi there! 👋 <br>
+Hi! 👋 <br>
 I’m Holly, a software engineer, co-founder of <a href="https://raccoonweb.co.uk/">Raccoon Web Ltd</a> and founder of <a href="https://escape-ordinary.com/">Escape Ordinary</a>.
 
 I love building applications from lines of code. 
